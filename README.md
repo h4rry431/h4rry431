@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @h4rry431
+- 👀 I’m interested in space stuff. I dunno how to code, so son't expect anything here 💀
+- 📫 How to reach me: My discord (@h4rry431) or my e-mail (h4rry431buisness@outlook.com)
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I used to be TERRIFIED of shutdown screens.
